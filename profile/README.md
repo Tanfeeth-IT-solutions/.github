@@ -1,4 +1,4 @@
-# Tanfeeth IT Solutions  
+# TANFEETH IT SOLUTIONS
 
 🚀 **Get the Job Done with Smart, Scalable, and Secure IT Solutions**  
 
